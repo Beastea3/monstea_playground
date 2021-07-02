@@ -21,26 +21,24 @@ category:
 
 ## Day 0
 第一天我们都约在龙阳路见面，可以直接磁悬浮到浦东机场。早饭就在龙阳路地铁站的麦当劳解决了。
-![](./20201225-_DSC1762.JPG)
+[![R6ntx0.jpg](https://z3.ax1x.com/2021/07/02/R6ntx0.jpg)](https://imgtu.com/i/R6ntx0)
 为什么说这是欧皇之旅，因为从赶飞机的时候，就已经是运气爆棚才能赶上，我们吃麦当劳似乎吃的有点磨蹭，最后一路小跑才刚刚好赶上飞机。不得不说，浦东机场太大了，你到了机场还要做接驳地铁去登机口，还是要多预留点时间，1个小时吧。
 
 大概下我们就到了长春啦，长春给我的第一个感觉就是好像来到了贾樟柯的电影里，感觉时间被拉回去10年，远方的烟囱还在冒着水汽，我们到东北了。
-![](./20201225-_DSC1773.jpg)
+[![R6nMqS.jpg](https://z3.ax1x.com/2021/07/02/R6nMqS.jpg)](https://imgtu.com/i/R6nMqS)
 
 晚上还准备去网吧小玩一下，发现也没啥玩的。最后吃了顿烤肉，烤肉真的可以，烤肉比脸还大，最后人均也就100出头。然后又去打了会儿桌球，桌球室里人还挺多，大声聊天的也挺多，我们慢慢说话都有了点东北口音。打完桌球我们去超市买了点东西晚上吃，和第二天在路上用。
 
-# Day1
+## Day1
 第一天我们就坐大巴去长白山啦，去我们老早定的度假酒店。
 
 中午我们就到了长白山度假区，这里有万达和我们定的鲁能两个酒店，万达好像滑雪场高级点，但是住的没有鲁能好。中午我们在万达旁边吃了午饭，大概都中规中矩，没有啥特别好吃的菜。不过我点了个手擀面，给我上的像是粗的挂面，有点不开心了。
 
-![](./20201226-_DSC1827.JPG)
-
+[![R6nlVg.jpg](https://z3.ax1x.com/2021/07/02/R6nlVg.jpg)](https://imgtu.com/i/R6nlVg)
 吃完就打车去酒店了，瑞士风的酒店，里面还包滑雪票。一个房间3晚4000块，挺贵的但是房间还可以。特别是我们仨男的搞了个亲子房，里面还有桌子，这下晚上的桌游有地方了。
 
 因为到的时候天还不晚，我们就酒店前面的雪地玩了好一会儿，有一点小斜坡，可以租那种小滑板滑下去。附图我同事的茕茕孑立。
-![](./20201226-_DSC1824.JPG)
-
+[![R6nKr8.jpg](https://z3.ax1x.com/2021/07/02/R6nKr8.jpg)](https://imgtu.com/i/R6nKr8)
 晚上在酒店吃的自助，着实是一般，菜的种类和口味都偏差，有机会还是打车去别的饭店吃，都还可以。吃完饭我们买了些啤酒，放在酒店外冰镇，然后开始打牌～
 
 ## Day 2
@@ -60,12 +58,12 @@ category:
 衣，不是太冷。漂流店里的小金毛还蛮乖巧，给它拍了几张照。
 
 
-![](./20201228-_DSC1852.JPG)
+[![R6n1aQ.jpg](https://z3.ax1x.com/2021/07/02/R6n1aQ.jpg)](https://imgtu.com/i/R6n1aQ)
 
 漂流大概就这样。
 
 
-![](._DSC1891.JPG)
+[![R6nUMV.jpg](https://z3.ax1x.com/2021/07/02/R6nUMV.jpg)](https://imgtu.com/i/R6nUMV)
 
 漂流完了之后，司机大哥突然传来好消息，天池北区开了。我们赶紧上车，驱车前往长白山。这真的是欧皇之旅，据说来长白山能看到天池的真不多。
 
@@ -73,39 +71,39 @@ category:
 
 不知道倒了几趟车，最后坐了一个景区的吉普车，因为山上的路其他车都不好开，然后走一小段路就可以到。
 
-![](./20201228-_DSC1912.JPG)
+[![R6nJGn.jpg](https://z3.ax1x.com/2021/07/02/R6nJGn.jpg)](https://imgtu.com/i/R6nJGn)
 
 天池上的风非常大，带着从雪山上吹过来的冰晶，裸露在外面的皮肤会很不舒服，所以建议面罩啥的都得带上。然后天池也没啥可看的，就是个冰坨坨，还想看到天池水怪也没有😂。
-![](./20201228-_DSC1936.jpg)
+[![R6narT.jpg](https://z3.ax1x.com/2021/07/02/R6narT.jpg)](https://imgtu.com/i/R6narT)
 
-![](./20201228-_DSC1962.jpg)
+[![R6ndqU.jpg](https://z3.ax1x.com/2021/07/02/R6ndqU.jpg)](https://imgtu.com/i/R6ndqU)
 
 风里面的冰屑也很多，搞得自动对焦很难对焦上，但拍出来发现别有韵味。
-![](.3531624801757_.pic_hd.jpg)
-![](./20201228-_DSC1990.jpg)
+[![R6n0ZF.jpg](https://z3.ax1x.com/2021/07/02/R6n0ZF.jpg)](https://imgtu.com/i/R6n0ZF)
+[![R6ncxx.jpg](https://z3.ax1x.com/2021/07/02/R6ncxx.jpg)](https://imgtu.com/i/R6ncxx)
 
 然后是一个记不得名字的景点，又被冻住的瀑布和小湖泊。这地方有很多雪，我们在这里打了很久的雪仗，引来路人羡慕（嫌弃）的眼光。
 
-![](./20201228-_DSC2007.jpg)
+[![R6nsi9.jpg](https://z3.ax1x.com/2021/07/02/R6nsi9.jpg)](https://imgtu.com/i/R6nsi9)
 
 然后到了一个山峰下，恍然有点像优胜美地。
 
 
-![](./20201228-_DSC2017.jpg)
+[![R6nyGR.jpg](https://z3.ax1x.com/2021/07/02/R6nyGR.jpg)](https://imgtu.com/i/R6nyGR)
 
 一路走～
 
 
 
 
-![](./20201228-_DSC2083.jpg)
-![](./20201228-_DSC2096.jpg)
+[![R6n6R1.jpg](https://z3.ax1x.com/2021/07/02/R6n6R1.jpg)](https://imgtu.com/i/R6n6R1)
+[![R6nRsK.jpg](https://z3.ax1x.com/2021/07/02/R6nRsK.jpg)](https://imgtu.com/i/R6nRsK)
 
 整个白天都是在山上走，然后天黑了才回到酒店，在隔壁县城某家店吃了烤肉，还买了烟花，准备晚上放。。。
-![](./20201228-_DSC2104.jpg)
+[![R6n2M6.jpg](https://z3.ax1x.com/2021/07/02/R6n2M6.jpg)](https://imgtu.com/i/R6n2M6)
 
 买了有大概500块，但是半小时就放完了。。。烟花真的是烧钱。
-![](./20201228-_DSC2128.jpg)
+[![R6nWqO.jpg](https://z3.ax1x.com/2021/07/02/R6nWqO.jpg)](https://imgtu.com/i/R6nWqO)
 
 ## Day 4
 今天是闲逛的一天，我们在长春闲逛一天。
@@ -114,30 +112,30 @@ category:
 
 早上的长春还是冷，路上人也不多。感觉建筑风格都是21世纪初的风格，很老派，很多地方会有水蒸气，有点蒸汽朋克🧐🧐。
 
-![](./20201230-_DSC2531.jpg)
+[![R6n4de.jpg](https://z3.ax1x.com/2021/07/02/R6n4de.jpg)](https://imgtu.com/i/R6n4de)
 
 走个二十多分钟就到了，溥仪的皇宫 - 伪满洲皇宫博物馆。
-![](./20201230-_DSC2549.jpg)
+[![R6noid.jpg](https://z3.ax1x.com/2021/07/02/R6noid.jpg)](https://imgtu.com/i/R6noid)
 
 
-![](./20201230-_DSC2574.jpg)
+[![R6n5IH.jpg](https://z3.ax1x.com/2021/07/02/R6n5IH.jpg)](https://imgtu.com/i/R6n5IH)
 
 说实话，溥仪的私人barber shop还是帅的，非常羡慕。
 
-![](./20201230-_DSC2581.jpg)
+[![R6n7RI.jpg](https://z3.ax1x.com/2021/07/02/R6n7RI.jpg)](https://imgtu.com/i/R6n7RI)
 
 主色调还是深红、深绿和黄色。
-![](./20201230-_DSC2586.jpg)
+[![R6nTJA.jpg](https://z3.ax1x.com/2021/07/02/R6nTJA.jpg)](https://imgtu.com/i/R6nTJA)
 
 议事厅。
-![](./20201230-_DSC2589.jpg)
+[![R6nOL8.jpg](https://z3.ax1x.com/2021/07/02/R6nOL8.jpg)](https://imgtu.com/i/R6nOL8)
 
 钟楼上的大钟永远的停在了溥仪逃跑的那一刻。
-![](./20201230-_DSC2595.jpg)
+[![R6nqQP.jpg](https://z3.ax1x.com/2021/07/02/R6nqQP.jpg)](https://imgtu.com/i/R6nqQP)
 
 逛完博物馆我们就找地方吃完饭了，大肘子真的棒，这家店是东北之行里最棒的之一了，春发合，下次还得去。
 
-![](./20201230-_DSC2604.jpg)
+[![R6nHzt.jpg](https://z3.ax1x.com/2021/07/02/R6nHzt.jpg)](https://imgtu.com/i/R6nHzt)
 
 推荐的还有雪衣豆沙包，基本招牌菜都可以点一遍。在我的强烈要求下，点了两个肘子，太满足了。
 
